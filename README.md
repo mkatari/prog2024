@@ -8,3 +8,5 @@ Wed: 5-7pm
 
 - Manpreet Katari
 - hello dr. katari!
+- TA is Yuewei
+- Carla
